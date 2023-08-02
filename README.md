@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **pushpendranarwariya13@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/14xf4ndQMFqCeCF4ERHixed4h2p8FXifK/view?usp=sharing](https://drive.google.com/file/d/14xf4ndQMFqCeCF4ERHixed4h2p8FXifK/view?usp=sharing)](https://drive.google.com/file/d/1pa9-MNMM3m1ONTojCdeUO53ncCJn_nTP/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1pa9-MNMM3m1ONTojCdeUO53ncCJn_nTP/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
